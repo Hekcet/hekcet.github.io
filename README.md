@@ -1,1 +1,0 @@
-# hekcet.github.io
